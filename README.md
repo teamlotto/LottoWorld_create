@@ -1,2 +1,7 @@
-# LottoWorld_create
-상상의 나라 로또월드로~~
+# Create_LottoWorld_map
+
+
+Hi, 
+Nice to meet u
+ba ba ba ~ ba banana
+
